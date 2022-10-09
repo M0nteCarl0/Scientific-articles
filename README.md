@@ -1,2 +1,2 @@
 # Scientific-articles
-My scientific articles from student time period
+My scientific articles on Russian language from student time period.
